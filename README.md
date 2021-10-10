@@ -1,1 +1,1 @@
-# Petya Gay
+# Petya ne Gay
