@@ -1,1 +1,1 @@
-# Petya ne Gay
+# Petya krasavchik
